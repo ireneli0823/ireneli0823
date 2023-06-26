@@ -15,7 +15,7 @@ With my tenacity and determination, I am ready to tackle any challenge that come
 
 ## Education 🎓
 
-- Master of Science, USC, 2023, 3.55/4.0 🎓
+- Master of Science, USC, 2023, 3.58/4.0 🎓
 
 
 ## Skills 🚀
